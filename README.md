@@ -1,1 +1,1 @@
-# snapchat-login.github.io
+This is for educational purposes only!!! 
